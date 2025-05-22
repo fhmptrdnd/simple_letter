@@ -1,2 +1,1 @@
-Gabut bikin surat2an..
-Hehe
+# Bisa buat nembak gebetan kalian
