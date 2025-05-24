@@ -1,1 +1,1 @@
-# Bisa buat nembak gebetan kalian
+# Bisa buat nembak gebetan kalian!
